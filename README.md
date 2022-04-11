@@ -1,4 +1,17 @@
-# Nban-gorilla-tag
-fuck you L_0 JKJKJKJKJKJK i love them 😶
-YOO WTF YALL FOUND IT SO FAST LMAOOOOOOO
-i did not buy it ratio + L
+I hate L_0 scamming you guys 💀 it was free dumbass
+L
+L
+
+L
+L
+L
+LL
+
+LL
+
+L
+L
+L
+L
+L
+ ratio L_0
