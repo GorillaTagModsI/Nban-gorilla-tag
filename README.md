@@ -1,17 +1,1 @@
-I hate L_0 scamming you guys 💀 it was free dumbass
-L
-L
-
-L
-L
-L
-LL
-
-LL
-
-L
-L
-L
-L
-L
- ratio L_0
+outdated Nban will get you banned now delete it from ur mods folder!!!
